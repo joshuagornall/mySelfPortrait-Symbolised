@@ -1,0 +1,2 @@
+# mySelfPortrait-Symbolised
+SYMBOLICCCCCCCCCCC
